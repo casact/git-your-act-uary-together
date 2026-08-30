@@ -23,3 +23,5 @@ Howdy, yall -Josh
 Hotdog! Philo Bishay was here
 
 Pramod Misra went from splitting atoms to splitting exposures — signing in from Atlanta.
+
+Karthik wonders if reinsurance reserving is done with Bermuda Triangles
